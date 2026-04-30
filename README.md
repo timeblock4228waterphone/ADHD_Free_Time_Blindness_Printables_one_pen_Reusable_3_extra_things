@@ -8,4 +8,4 @@ B . There is a way to look for 3 hours in time. So let's say it is 4. Which is i
 C You round down to the closest 
 
 D You look at each of the clock to refrence where you are
-VO3 is the most recent one so far
+VO4 is the most recent one so far
