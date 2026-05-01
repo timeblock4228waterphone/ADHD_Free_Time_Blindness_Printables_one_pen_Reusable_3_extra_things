@@ -10,4 +10,4 @@ C You round down to the closest
 D You look at each of the clock to refrence where you are
 
 
-VO4 is the most recent one so far
+VO4 is the most recent one so far ignore the other files
