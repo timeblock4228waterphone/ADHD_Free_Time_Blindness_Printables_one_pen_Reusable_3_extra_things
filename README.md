@@ -43,10 +43,7 @@ this was made by Civil-Advance-2841. can you tell me if this helpful. thanks.
 <img width="1700" height="2200" alt="vo4Time-anchor-map-26-4-29 pdf (1) (1)-1" src="https://github.com/user-attachments/assets/e16d6c10-20ed-4bb0-bd98-67cfa9ac4599" />
 part 2 for this for seciton b what it shows is 30 next 30 minute or 6hours. c show the next 45 minute group of it
 
-<img width="1700" height="2200" alt="part2-timeanchormappdf-2" src="https://github.com/user-attachments/assets/3e8edebd-46fd-4d85-955d-869aa639b07c" />
 
-
-part 3<img width="1700" height="2200" alt="Algebra-Based-way-to-tell-time-1" src="https://github.com/user-attachments/assets/580533ba-e47a-4b24-96b0-c71bbaf91905" />
 
 
 
