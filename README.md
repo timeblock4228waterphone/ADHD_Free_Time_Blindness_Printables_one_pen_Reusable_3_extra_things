@@ -14,6 +14,9 @@ B . it is the 12 number 3 by 4 grid
 C You round down to the closest 15 minute
 
 D this one 3 different ways to look at to look it at
+those two files are CCO 1(public domain) no right reserved meaning
+that if you want yo copy and makeyour own version with your favorite 
+interest this you can do that . you edit , copy ,whatever.
 
 
 
