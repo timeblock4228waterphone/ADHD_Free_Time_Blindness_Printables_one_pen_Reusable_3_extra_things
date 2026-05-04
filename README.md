@@ -4,7 +4,10 @@ VO4 is the most recent one so far ignore the other files
 
 
 the second file for it is called part2 timeanchor-map
+
+
 The third file is the called Algerba based way to tell time.
+this one is heavy on math but even if you dont like math you can still use it if you need to look at what seciton of time it is which is low spoon to look at
 
 
 This is a map for where you are.
