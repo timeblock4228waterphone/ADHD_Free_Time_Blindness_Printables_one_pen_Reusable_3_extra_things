@@ -10,9 +10,9 @@ It helps you see where you are in the day, understand the next few hours, and tr
 
 This time tool adapts to your energy level not the other way around.
 
-the level are 6 hours 3 hours 2 hours, next ,45 , 30 minute , next 30 minute anchor, next 15 minute anchor next 15 minute.
+the level are 6 hours 3 hours 2 hours, next ,45 , 30 minute , next 30 minute anchor, next 15 minute anchor next 15 minute.to the smalled next 5 minute .
 
-the algerba one it is group in 6 hours. to the smalled next 5 minute .
+the algerba one it is group in 6 hours. .
 
 
 Thing to know about this is you look at layer by layer
