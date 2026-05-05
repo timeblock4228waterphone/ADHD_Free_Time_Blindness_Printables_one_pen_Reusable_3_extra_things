@@ -5,6 +5,7 @@
 A printable visual tool for people with time blindness.
 
 It helps you see where you are in the day, understand the next few hours, and track time using AM/PM, 24-hour time, grids, and clock references.
+This time tool adapts to your energy level not the other way around. 
 
 Thing to know about this is you look at layer by layer
 
