@@ -53,6 +53,7 @@ Also if you were yo remake underlining even number is what makes it more visuall
 <img width="1700" height="2200" alt="vo4Time-anchor-map-26-4-29 pdf (1) (1)-1" src="https://github.com/user-attachments/assets/e16d6c10-20ed-4bb0-bd98-67cfa9ac4599" />
 part 2 for this for seciton b what it shows is 30 next 30 minute or 6hours. c show the next 45 minute group of it
 
+(important . the all togther wont make sense unless you read the first 3 pdf files.)
 
 
 
