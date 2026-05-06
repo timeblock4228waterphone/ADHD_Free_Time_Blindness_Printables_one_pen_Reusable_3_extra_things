@@ -1,6 +1,6 @@
 
 # Time-Blindness-compass Printable
-It hard to navigate a map without a compass
+
 
 A printable visual tool for people with time blindness.
 
