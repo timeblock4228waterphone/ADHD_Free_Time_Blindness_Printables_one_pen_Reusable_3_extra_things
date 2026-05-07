@@ -49,7 +49,8 @@ interest this you can do that . you edit , copy ,whatever.
 
 this was made by Civil-Advance-2841. can you tell me if this helpful. thanks.
 
-[aaa-time-compass.pdf](https://github.com/user-attachments/files/27463927/aaa-time-compass.pdf)
+<img width="1700" height="2200" alt="Time-compass-for-time-blindness docx-1" src="https://github.com/user-attachments/assets/c67123e4-53cf-4711-8ce4-3d6044339982" />
+
 
 
 Also if you were yo remake underlining even number is what makes it more visually acceble
