@@ -1,3 +1,4 @@
+[aaa-time-compass.pdf](https://github.com/user-attachments/files/27463918/aaa-time-compass.pdf)
 
 # Time-Blindness-compass Printable
 
@@ -47,6 +48,9 @@ own version with your favorite
 interest this you can do that . you edit , copy ,whatever.
 
 this was made by Civil-Advance-2841. can you tell me if this helpful. thanks.
+
+[aaa-time-compass.pdf](https://github.com/user-attachments/files/27463927/aaa-time-compass.pdf)
+
 
 Also if you were yo remake underlining even number is what makes it more visually acceble
 
