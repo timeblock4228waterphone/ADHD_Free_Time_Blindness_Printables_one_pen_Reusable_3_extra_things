@@ -63,7 +63,7 @@ the reason for the underline is so your eyes can read even or odd number more ea
 make copy make sure you know how to know visually which one is even and which one is odd
 
 edited May 5 2026 this version has only the things needed the last update had mulitple duplicated
-files
+files(edit may 6 the paper has been edit so the 60 is a 0 amd the 24 is 00)
 
 
 
