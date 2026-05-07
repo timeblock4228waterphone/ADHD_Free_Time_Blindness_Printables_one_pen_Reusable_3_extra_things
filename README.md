@@ -1,4 +1,3 @@
-[aaa-time-compass.pdf](https://github.com/user-attachments/files/27463918/aaa-time-compass.pdf)
 
 # Time-Blindness-compass Printable
 
@@ -49,13 +48,13 @@ interest this you can do that . you edit , copy ,whatever.
 
 this was made by Civil-Advance-2841. can you tell me if this helpful. thanks.
 
+
+
+
+
+Also if you were yo remake underlining even number is what makes it more visually accessible
 <img width="1700" height="2200" alt="Time-compass-for-time-blindness docx-1" src="https://github.com/user-attachments/assets/c67123e4-53cf-4711-8ce4-3d6044339982" />
 
-
-
-Also if you were yo remake underlining even number is what makes it more visually acceble
-
-<img width="1700" height="2200" alt="vo4Time-anchor-map-26-4-29 pdf (1) (1)-1" src="https://github.com/user-attachments/assets/e16d6c10-20ed-4bb0-bd98-67cfa9ac4599" />
 part 2 for this for seciton b what it shows is 30 next 30 minute or 6hours. c show the next 45 minute group of it
 
 (important . the all togther wont make sense unless you read the first 3 pdf files.) also 
