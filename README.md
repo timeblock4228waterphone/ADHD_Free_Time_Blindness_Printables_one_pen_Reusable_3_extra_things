@@ -7,15 +7,27 @@ A printable visual tool for people with time blindness.
 It helps you see where you are in the day, understand the next few hours, and track time using AM/PM, 24-hour time, grids, and clock references.
 <img width="1700" height="2200" alt="Time-compass-for-time-blindness docx-1" src="https://github.com/user-attachments/assets/c67123e4-53cf-4711-8ce4-3d6044339982" />
 
-How it works it is dynamic with your energy level with time.
+How it works it is works with your energy level with time.
 it account for high level and low level
 
 
 there are 6 printable .
 
+the ones to look at is the d path to go to understand it is this 
+(1)task-timeblindness-check-off
+(2) d-the-instrution-2
+(3) you go to a-time-blindness-printable
+(4) to -b-timeblindenss-part
+(5) c-6 unit of time
+(6) the d- instruciton for all
+the 6 one has all of it togher into one printable
 
 
-This time tool adapts to your energy level not the other way around.
+
+
+
+
+
 
 the level are 6 hours 3 hours 2 hours, next ,45 , 30 minute , next 30 minute anchor, next 15 minute anchor next 15 minute.to the smalled next 5 minute .
 
