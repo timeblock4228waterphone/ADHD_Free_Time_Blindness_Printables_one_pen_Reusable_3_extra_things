@@ -11,85 +11,43 @@ How it works it is works with your energy level with time.
 it account for high level and low level
 
 
-there are 6 printable .
+there are 7 printable .
 
 the ones to look at is the d path to go to understand it is this 
-(1)task-timeblindness-check-off
 
-(2) d-the-instrution-2
+(1)arrow way
+(2) vo1
 
-(3) you go to a-time-blindness-printable
+(3) vo3
 
-(4) to -b-timeblindenss-part
+(4)unit of 6 hours
 
-(5) c-6 unit of time
+(5)all of it
 
-(6) the dz-read at the end timblindness
+(6)all of it
+(&) all of it
 
 the 6 one has all of it togher into one printable
 
+https://github.com/timeblock4228waterphone/Time-blindness-printable/blob/546f250d9eea2bbc2738981b7309e82a16ca6d41/-arrowtime-2.pdf
+
+https://github.com/timeblock4228waterphone/Time-blindness-printable/blob/546f250d9eea2bbc2738981b7309e82a16ca6d41/a-time-blindness-printable-vo1.pdf
+
+https://github.com/timeblock4228waterphone/Time-blindness-printable/blob/546f250d9eea2bbc2738981b7309e82a16ca6d41/b-time-blindness-part2.pdf
+
+https://github.com/timeblock4228waterphone/Time-blindness-printable/blob/546f250d9eea2bbc2738981b7309e82a16ca6d41/c-6-unit-of-hour-timevo3.pdf
+
+https://github.com/timeblock4228waterphone/Time-blindness-printable/blob/546f250d9eea2bbc2738981b7309e82a16ca6d41/d-the-instruction-2.pdf
+
+https://github.com/timeblock4228waterphone/Time-blindness-printable/blob/546f250d9eea2bbc2738981b7309e82a16ca6d41/dz-read-at-the-end-timblindness-dashboard.pdf
+
+https://github.com/timeblock4228waterphone/Time-blindness-printable/blob/546f250d9eea2bbc2738981b7309e82a16ca6d41/task-timeblindness-checkoff.pdf
 
 
 
 
 
 
-
-the level are 6 hours 3 hours 2 hours, next ,45 , 30 minute , next 30 minute anchor, next 15 minute anchor next 15 minute.to the smalled next 5 minute .
-
-the algerba one it is group in 6 hours. .
-with this it helps you know how much time is avible till the next event. 
-
-Thing to know about this is you look at layer by layer
-
-
-
-
-the second file for it is called part2 timeanchor-map
-
-
-The third file is the called Algerba based way to tell time.
-this one is heavy on math but even if you dont like math you can still use it if you need to look at what seciton of time it is which is low spoon to look at
-
-
-This is a map for where you are.
-
-A There is an AM and PM. You look where you are.
-the is even number and odd number the even number is underlined
-B . it is the 12 number 3 by 4 grid
-but you can add 3 hours by lookind down in the collum.
-
-C You round down to the closest 15 minute
-
-D this one 3 different ways to look at to look it at
-
-those three files are CCO 1(public domain)
-
-
-no right reserved meaning
-that if you want yo copy and make your
-own version with your favorite 
-interest this you can do that . you edit , copy ,whatever.
-
-
-. can you tell me if this helpful. thanks.
-
-
-
-
-
-Also if you were yo remake underlining even number is what makes it more visually accessible
-
-
-part 2 for this for seciton b what it shows is 30 next 30 minute or 6hours. c show the next 45 minute group of it
-
-(important . the all togther wont make sense unless you read the first 3 pdf files.) also 
-
-the reason for the underline is so your eyes can read even or odd number more easy if you 
-make copy make sure you know how to know visually which one is even and which one is odd
-
-edited May 5 2026 this version has only the things needed the last update had mulitple duplicated
-files(edit may 6 the paper has been edit so the 60 is a 0 amd the 24 is 00)
 
 
 
