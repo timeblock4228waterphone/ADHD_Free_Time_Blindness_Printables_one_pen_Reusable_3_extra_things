@@ -29,27 +29,27 @@ the ones to look at is the d path to go to understand it is this
 
 the 6 one has all of it togher into one printable
 
-https://github.com/timeblock4228waterphone/Time-blindness-printable/blob/546f250d9eea2bbc2738981b7309e82a16ca6d41/-arrowtime-2.pdf
+https://github.com/timeblock4228waterphone/Time-blindness-printable/blob/546f250d9eea2bbc2738981b7309e82a16ca6d41/-arrowtime-2.pdf (1)
 
-https://github.com/timeblock4228waterphone/Time-blindness-printable/blob/546f250d9eea2bbc2738981b7309e82a16ca6d41/a-time-blindness-printable-vo1.pdf
+https://github.com/timeblock4228waterphone/Time-blindness-printable/blob/546f250d9eea2bbc2738981b7309e82a16ca6d41/a-time-blindness-printable-vo1.pdf (2)
 
-https://github.com/timeblock4228waterphone/Time-blindness-printable/blob/546f250d9eea2bbc2738981b7309e82a16ca6d41/b-time-blindness-part2.pdf
-
-
-
-
-
-https://github.com/timeblock4228waterphone/Time-blindness-printable/blob/546f250d9eea2bbc2738981b7309e82a16ca6d41/c-6-unit-of-hour-timevo3.pdf
-
-https://github.com/timeblock4228waterphone/Time-blindness-printable/blob/546f250d9eea2bbc2738981b7309e82a16ca6d41/d-the-instruction-2.pdf
-
-https://github.com/timeblock4228waterphone/Time-blindness-printable/blob/546f250d9eea2bbc2738981b7309e82a16ca6d41/dz-read-at-the-end-timblindness-dashboard.pdf
+https://github.com/timeblock4228waterphone/Time-blindness-printable/blob/546f250d9eea2bbc2738981b7309e82a16ca6d41/b-time-blindness-part2.pdf (3)
 
 
 
 
 
-https://github.com/timeblock4228waterphone/Time-blindness-printable/blob/546f250d9eea2bbc2738981b7309e82a16ca6d41/task-timeblindness-checkoff.pdf
+https://github.com/timeblock4228waterphone/Time-blindness-printable/blob/546f250d9eea2bbc2738981b7309e82a16ca6d41/c-6-unit-of-hour-timevo3.pdf (4)
+
+https://github.com/timeblock4228waterphone/Time-blindness-printable/blob/546f250d9eea2bbc2738981b7309e82a16ca6d41/d-the-instruction-2.pdf (5)
+
+https://github.com/timeblock4228waterphone/Time-blindness-printable/blob/546f250d9eea2bbc2738981b7309e82a16ca6d41/dz-read-at-the-end-timblindness-dashboard.pdf (6)
+
+
+
+
+
+https://github.com/timeblock4228waterphone/Time-blindness-printable/blob/546f250d9eea2bbc2738981b7309e82a16ca6d41/task-timeblindness-checkoff.pdf (7)
 
 
 
