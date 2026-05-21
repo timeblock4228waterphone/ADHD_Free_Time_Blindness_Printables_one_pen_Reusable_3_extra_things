@@ -40,18 +40,20 @@ task-timeblindness-checkoff.pdf
 zzzz-stickman-vo4.pdf
 
  
-the unit 6 one is the next eastest one you dont need to do algerba just need ot know 6 hour unit one
+the unit 6 one is the next eastest one you dont need to do algerba just need ot know 6 hour unit one (1)
 
 
-a-time-blindness-printable-vo1.pdf
-the b timeblindness one
+a-time-blindness-printable-vo1.pdf (2)
+the b timeblindness one (3)
 
-b-time-blindness-part2.pdf
+b-time-blindness-part2.pdf (4)
 
-dz-read-at-the-end-timblindness
+d-the-instruction-2.pdf (5)
+
+dz-read-at-the-end-timblindness (6)
 
 
--arrowtime-2.pdf
+-arrowtime-2.pdf (7)
 
 the 6 one has all of it togher into one printable
 
