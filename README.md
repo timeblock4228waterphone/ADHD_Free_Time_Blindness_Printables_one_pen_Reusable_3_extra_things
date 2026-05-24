@@ -7,6 +7,11 @@ A printable visual tool for people with time blindness.
 Timeblindness is hard . for this you do not need all the tools at once.
 for timeblidness some time is easy some time is hard
 
+ \   /
+  ( :D))---
+ /   \
+(if you see this . this is my signtuare it a double chin happy. butterlfy named steve)
+
 sometimes with time blindness it hard to know what time it because energy levl cange alot this keeps up with you
 
 for low enegry look at 6 unit one  or the stick man and the task check off one
@@ -51,7 +56,10 @@ dz-read-at-the-end-timblindness (7)
 
 -arrowtime-2.pdf (8)
 
-the 6 one has all of it togher into one printable
+the 6 hours one has all of it togher into one printable
+
+ 
+
 
 
 okay the instruciton for it is this
