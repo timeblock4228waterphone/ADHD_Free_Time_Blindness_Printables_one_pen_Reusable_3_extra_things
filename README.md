@@ -24,6 +24,8 @@ for timeblidness some time is easy some time is hard
   
  /  \ \
 (if you see this . this is my signtuare it a double chin happy. butterlfy named steve)
+( read this)
+(also if you see a time thing with 9 systme in one there is reason for that. The reason is that in school you wont have time to look at 3 seprate page to look through it to see the time this way it is only 1 page on paper )
 
 sometimes with time blindness it hard to know what time it because energy levl cange alot this keeps up with you
 
