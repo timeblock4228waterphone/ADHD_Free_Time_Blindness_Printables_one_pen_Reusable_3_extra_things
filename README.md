@@ -6,6 +6,10 @@
 
 This is a layered time-reference system for ADHD/time blindness. Different parts are meant for different energy levels. You do not need to use all systems at once.
 
+It a visaul way to see time in printable.
+
+It makes so that way 
+
 
 ( read this)
 (also if you see a time thing with 9 systme in one there is reason for that. The reason is that in school you wont have time to look at 3 seprate page to look through it to see the time this way it is only 1 page on paper )
@@ -26,74 +30,27 @@ there are 8 printable .
 
 
 
+ this is all of it
+stage-1-level-1stickman.pdf
+
+stage-2-c-math-not-required.pdf
+
+stage-3-a-low-spoon-checklist..pdf
+
+stage-4-b-time-blindness-.pdf
+
+stage-5-b-time-blindness-printable-vo2.pdf
+
+stage-6-9-system-easy-on-eyes .pdf
+
+stage-7-9-for-school-or-work-one-page.pdf
+
+stage-8-arrowtime-level-hard.pdf
 
 
+stage 1 is so it number with stickman 
 
-order to easest to hardest is this the task 
-
-zzzz-stickman-vo4.pdf (1)
-
-task-timeblindness-checkoff.pdf(2)
-
-
-
-
- 
-the unit 6 one is the next eastest one you dont need to do algerba just need ot know 6 hour unit one (3)
-
-
-a-time-blindness-printable-vo1.pdf (4)
- 
-
-b-time-blindness-part2.pdf (5)
-
-d-the-instruction-2.pdf (6)
-
-dz-read-at-the-end-timblindness (7)
-
-
--arrowtime-2.pdf (8)
-
-the 6 hours one has all of it togher into one printable
-
- 
-
-
-
-okay the instruciton for it is this
-the stick man is there so you know the minute of it but in stickman man. if you want to know the next 15 minute look down in colium and 45 minute look up.(1)
-
-
-
-( 
-task-timeblindness-checkoff.pdf )(2)
-how it works is this like it is 9 :45. what you do is look at and and look at 9. then you see that 45 is to the left so you mark it. or lets try another time 
-if it is 10:30 then you look at number 10. then you mark you see 30. which is on the bottom.
-
-
-
-a-time-blindness-printable-vo1.pd (4)
-
-how it works is this there is
-a equals to 24 hour grid. but 8 block each one number 3 hours in each one. 
-if you want to know the next 2 hours you look at the underline one or non underline one
-
-b is the 3 by 4 grid with minute and hours (4)
-c is the 15 minute grid
-d the clocks
-
-
-( 
-b-time-blindness-part2.pdf) 
-there is
- a b c d 
- the a 3 by 4 grid
- 
- b is 3 by 2 grid 
-
- c is 45 minute group
-
- d is the 15 minute group
+stage 2 i know it says no math requird no math is required. just know the 1-6 7-12
 
 
 
