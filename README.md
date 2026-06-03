@@ -54,7 +54,7 @@ it can fit into a wallet if you fold it
 
 
 [7 School or Work](./7-9-for-school-or-work-one-page2.pdf)
-not needed for this one
+the arrow time you do not needed to learn it is extra work.
 
 [8 Arrow Time not needed ](./8-(not-needed-arrowtime-level-hard).pdf)
 
