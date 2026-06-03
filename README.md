@@ -55,6 +55,8 @@ there are 8 printable 1 extra.
 [9 Mental Stimming PDF](./mental%20stimming.(1).pdf)
 
 
+[Low Spoon Expense Tracker](./low-spoon-expense-tracker%20(1).pdf)
+
 
 
  
@@ -89,7 +91,7 @@ License is cco1 public domain no right reserved.
 
 also 
 
-[low spoon budget]./low-spoon-expense-tracker.pdf
+[low spoon budget](./low-spoon-expense-tracker%20(1).pdf 
 
 
 
