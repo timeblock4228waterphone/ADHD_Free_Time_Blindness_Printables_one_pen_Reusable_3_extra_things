@@ -31,7 +31,28 @@ it account for high level and low level
 
 
 
-there are 8 printable .
+there are 8 printable 1 extra.
+
+# Time Blindness Printable
+
+[1 Low Spoon Checklist](./1-a-low-spoon-checklist(2).pdf)
+
+[2 Math Not Required](./2-c-math-not-required.pdf)
+
+[3 Stickman](./3-level-1stickman.pdf)
+
+[4 Time Blindness](./4-b-time-blindness-.pdf)
+
+[5 Compass](./5-b-time-blindness-printable-vo2.pdf)
+
+[6 Easy on Eyes](./6-9-system-easy-on-eyes%20.pdf)
+
+[7 School or Work](./7-9-for-school-or-work-one-page2.pdf)
+
+[8 Arrow Time](./8-(not-needed-arrowtime-level-hard).pdf)
+
+[9 Mental Stimming](./mental%20stimming%201.pdf)
+
 
 
 
@@ -65,25 +86,7 @@ License is cco1 public domain no right reserved.
   
  /  \ \
 (if you see this . this is my signtuare it a double chin happy. butterlfy named steve) this is who you give credit to.
-# Time Blindness Printable
 
-[1 Low Spoon Checklist](./1-a-low-spoon-checklist(2).pdf)
-
-[2 Math Not Required](./2-c-math-not-required.pdf)
-
-[3 Stickman](./3-level-1stickman.pdf)
-
-[4 Time Blindness](./4-b-time-blindness-.pdf)
-
-[5 Compass](./5-b-time-blindness-printable-vo2.pdf)
-
-[6 Easy on Eyes](./6-9-system-easy-on-eyes%20.pdf)
-
-[7 School or Work](./7-9-for-school-or-work-one-page2.pdf)
-
-[8 Arrow Time](./8-(not-needed-arrowtime-level-hard).pdf)
-
-[9 Mental Stimming](./mental%20stimming%201.pdf)
 
 
 
