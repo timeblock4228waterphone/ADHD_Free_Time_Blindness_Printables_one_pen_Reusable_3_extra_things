@@ -35,28 +35,7 @@ there are 8 printable .
 
 
 
- this is all of it
-stage-1-level-1stickman.pdf
-
-stage-2-c-math-not-required.pdf
-
-stage-3-a-low-spoon-checklist..pdf
-
-stage-4-b-time-blindness-.pdf
-
-stage-5-b-time-blindness-printable-vo2.pdf
-
-stage-6-9-system-easy-on-eyes .pdf
-
-stage-7-9-for-school-or-work-one-page.pdf
-
-stage-8-arrowtime-level-hard.pdf
-
-
-stage 1 is so it number with stickman 
-
-stage 2 i know it says no math requird no math is required. just know the 1-6 7-12
-
+ 
 
 
  
