@@ -63,9 +63,8 @@ the arrow time you do not needed to learn it is extra work.
 
 this one is low energy way to keep track of expense.
 
-[Low Spoon Expense Tracker](./once-a-month-low-spoon-expense-tracker%20(1).pdf)
 
-[Low Spoon Expense Tracker](./once-a-month-low-spoon-expense-tracker.pdf)
+[Low Spoon Expense Tracker once a month](./once-a-month-low-spoon-expense-tracker.pdf)
 
 
 
