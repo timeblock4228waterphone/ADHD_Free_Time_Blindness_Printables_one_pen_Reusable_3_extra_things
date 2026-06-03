@@ -61,7 +61,7 @@ the arrow time you do not needed to learn it is extra work.
 
 [9 Mental Stimming PDF](./mental%20stimming.(1).pdf)
 
-this one you do only once a month if you want
+this one is low energy way to keep track of expense.
 
 [Low Spoon Expense Tracker](./once-a-month-low-spoon-expense-tracker%20(1).pdf)
 
