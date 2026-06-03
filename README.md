@@ -14,7 +14,10 @@ It makes so that way
 ( read this)
 (also if you see a time thing with 9 systme in one there is reason for that. The reason is that in school you wont have time to look at 3 seprate page to look through it to see the time this way it is only 1 page on paper )
 
-sometimes with time blindness it hard to know what time it because energy levl cange alot this keeps up with you
+You do not need to printal all the pages. 8 arrow times is not neccary and mental stimming is extra. 
+The reason some page is duplicated is because there is version that is 12 hours or 24 hours the work the same but one is militarty time and the other one is not military time
+
+
 
 for low enegry look at 6 unit one  or the stick man and the task check off one
 
@@ -24,6 +27,8 @@ It helps you see where you are in the day, understand the next few hours, and tr
 
 How it works it is works with your energy level with time.
 it account for high level and low level
+
+
 
 
 there are 8 printable .
@@ -57,7 +62,7 @@ stage 2 i know it says no math requird no math is required. just know the 1-6 7-
  
 dz-read-at-the-end-timblindness-dashboard.pdf-vo2.pdf
 
-the reason there is 9 system slammed into 1 page is because when you are at work or at school and you need to refrence time . it hard to find the right thing when it 3 sperate pages. this one you have one page and you look at it. oh and also if you need to make it water proof use packing tape to cover it.
+
 
 
 License is cco1 public domain no right reserved.
