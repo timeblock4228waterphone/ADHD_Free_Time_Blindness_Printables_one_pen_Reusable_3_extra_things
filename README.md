@@ -65,7 +65,7 @@ this one is low energy way to keep track of expense.
 
 [Low Spoon Expense Tracker](./once-a-month-low-spoon-expense-tracker%20(1).pdf)
 
-[Low Spoon Expense Tracker](./once-a-month-low-spoon-expense-tracker%20.pdf)
+[Low Spoon Expense Tracker](./once-a-month-low-spoon-expense-tracker.pdf)
 
 
 
