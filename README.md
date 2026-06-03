@@ -41,15 +41,15 @@ there are 8 printable 1 extra.
 
 [3 Stickman](./3-level-1stickman.pdf)
 
-[4 Time Blindness](./4-b-time-blindness-.pdf)
+[4 Time Blindness 1](./4-b-time-blindness-.pdf)
 
-[5 Compass](./5-b-time-blindness-printable-vo2.pdf)
+[5 time blindness 2](./5-b-time-blindness-printable-vo2.pdf)
 
 [6 Easy on Eyes](./6-9-system-easy-on-eyes%20.pdf)
 
 [7 School or Work](./7-9-for-school-or-work-one-page2.pdf)
 
-[8 Arrow Time](./8-(not-needed-arrowtime-level-hard).pdf)
+[8 Arrow Time not needed ](./8-(not-needed-arrowtime-level-hard).pdf)
 
 [9 Mental Stimming](./mental%20stimming%201.pdf)
 
