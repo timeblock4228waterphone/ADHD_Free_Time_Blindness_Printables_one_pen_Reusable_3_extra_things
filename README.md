@@ -51,7 +51,8 @@ there are 8 printable 1 extra.
 
 [8 Arrow Time not needed ](./8-(not-needed-arrowtime-level-hard).pdf)
 
-[9 Mental Stimming](./mental%20stimming%201.pdf)
+
+[9 Mental Stimming PDF](./mental%20stimming.(1).pdf)
 
 
 
