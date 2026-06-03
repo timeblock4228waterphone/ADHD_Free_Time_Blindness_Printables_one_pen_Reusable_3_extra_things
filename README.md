@@ -37,6 +37,8 @@ there are 8 printable 1 extra.
 
 [1 Low Spoon Checklist](./1-a-low-spoon-checklist(2).pdf)
 
+this one you just need to know 4 hours group in day
+
 [2 Math Not Required](./2-c-math-not-required.pdf)
 
 [3 Stickman](./3-level-1stickman.pdf)
@@ -49,6 +51,8 @@ this is needed to know the next step
 [6 Easy on Eyes](./6-9-system-easy-on-eyes%20.pdf)
 
 it can fit into a wallet if you fold it
+
+
 [7 School or Work](./7-9-for-school-or-work-one-page2.pdf)
 not needed for this one
 
