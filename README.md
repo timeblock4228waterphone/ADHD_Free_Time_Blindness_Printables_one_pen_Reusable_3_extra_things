@@ -44,16 +44,20 @@ there are 8 printable 1 extra.
 [4 Time Blindness 1](./4-b-time-blindness-.pdf)
 
 [5 time blindness 2](./5-b-time-blindness-printable-vo2.pdf)
+this is needed to know the next step
 
 [6 Easy on Eyes](./6-9-system-easy-on-eyes%20.pdf)
 
+it can fit into a wallet if you fold it
 [7 School or Work](./7-9-for-school-or-work-one-page2.pdf)
+not needed for this one
 
 [8 Arrow Time not needed ](./8-(not-needed-arrowtime-level-hard).pdf)
 
 
 [9 Mental Stimming PDF](./mental%20stimming.(1).pdf)
 
+this one you do only once a month if you want
 
 [Low Spoon Expense Tracker](./once-a-month-low-spoon-expense-tracker%20(1).pdf)
 
