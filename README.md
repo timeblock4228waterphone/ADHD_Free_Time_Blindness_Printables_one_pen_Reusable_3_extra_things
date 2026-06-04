@@ -99,10 +99,10 @@ License is cco1 public domain no right reserved.
 
 how to make a free fidget toy you google https://www.youtube.com/watch?v=_4p_QxWtGYc&t=83s or 
 How to Make a Paper Table Football | Flick Football | Origami Step by Step Tutorial
-Kyrin Crafts if you dont want to click on link. then at tie a thread at the tail like this and fold it you can swing it around.
+Kyrin Crafts if you dont want to click on link. then at tie a thread at the tail like this and fold it you can swing it around. 
 <img width="4032" height="3024" alt="6348AC9E-83FA-4F30-8AD7-3C22BDA062A4" src="https://github.com/user-attachments/assets/2a031f77-9198-4ad7-8ac0-1bb506c4b3f4" />
 
-also 
+also lenth of the thread for this is fingertip to elbow and you can tie to pen and shake it up and down and that could help let go of frustration
 
 
 
