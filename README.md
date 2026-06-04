@@ -1,5 +1,4 @@
-<img width="4032" height="3024" alt="steve-fear-is-tomato" src="https://github.com/user-attachments/assets/4284fb1c-1d72-4572-ae44-1fc3197e0145" />
-<img width="4032" height="3024" alt="steve-fear-is-tomato" src="https://github.com/user-attachments/assets/22d54ab4-c728-4d9c-9edd-67dbcf34864f" />
+
 
 #ADHD anchor Time-Blindness-Printable Public Domain
 # neurodiversity time friendly tool.
