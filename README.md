@@ -51,7 +51,7 @@ this is needed to know the next step
 
 [6 Easy on Eyes](./6-9-system-easy-on-eyes%20.pdf)
 
-it can fit into a wallet if you fold it
+it can fit into a wallet if you fold it. this one if you can only print one page of all these print this one. and the last page .
 
 
 [7 School or Work](./7-9-for-school-or-work-one-page2.pdf)
