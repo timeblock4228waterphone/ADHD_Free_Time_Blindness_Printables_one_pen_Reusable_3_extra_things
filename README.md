@@ -123,6 +123,7 @@ D=(1,2,3,4,5,6)
 Hour=6(a-1)+b 
 
 Minute is 30(c-1)+5d 
+this is not neccary to use the non math
 
 
 
