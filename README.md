@@ -102,7 +102,7 @@ How to Make a Paper Table Football | Flick Football | Origami Step by Step Tutor
 Kyrin Crafts if you dont want to click on link. then at tie a thread at the tail like this and fold it you can swing it around. 
 <img width="4032" height="3024" alt="6348AC9E-83FA-4F30-8AD7-3C22BDA062A4" src="https://github.com/user-attachments/assets/2a031f77-9198-4ad7-8ac0-1bb506c4b3f4" />
 
-also lenth of the thread for this is fingertip to elbow and you can tie to pen and shake it up and down and that could help let go of frustration
+also lenth of the thread for this is fingertip to elbow and you can tie to pen and shake it up and down and that could help let go of frustration or you can grab a thread wrap it around the pen enough that it because like a fishing hook when you throw it.
 
 
 
