@@ -1,3 +1,5 @@
+<img width="4032" height="3024" alt="steve-fear-is-tomato" src="https://github.com/user-attachments/assets/4284fb1c-1d72-4572-ae44-1fc3197e0145" />
+<img width="4032" height="3024" alt="steve-fear-is-tomato" src="https://github.com/user-attachments/assets/22d54ab4-c728-4d9c-9edd-67dbcf34864f" />
 
 #ADHD anchor Time-Blindness-Printable Public Domain
 # neurodiversity time friendly tool.
@@ -99,8 +101,9 @@ License is cco1 public domain no right reserved.
 
 how to make a free fidget toy you google https://www.youtube.com/watch?v=_4p_QxWtGYc&t=83s or 
 How to Make a Paper Table Football | Flick Football | Origami Step by Step Tutorial
-Kyrin Crafts if you dont want to click on link. then at tie a thread at the tail like this and fold it you can swing it around. 
-<img width="4032" height="3024" alt="6348AC9E-83FA-4F30-8AD7-3C22BDA062A4" src="https://github.com/user-attachments/assets/2a031f77-9198-4ad7-8ac0-1bb506c4b3f4" />
+Kyrin Crafts if you dont want to click on link. then at tie a thread at the tail like this and fold it you can swing it around. <img width="4032" height="3024" alt="steve-fear-is-tomato" src="https://github.com/user-attachments/assets/c54c93c9-d9fb-4cbb-910a-24b3515e8a54" />
+
+
 
 also lenth of the thread for this is fingertip to elbow and you can tie to pen and shake it up and down and that could help let go of frustration or you can grab a thread wrap it around the pen enough that it because like a fishing hook when you throw it.
 oh and use a coin to flatten it or 6 sided pencil to flatten it like how people use a bone folder for paper
