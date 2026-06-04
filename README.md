@@ -111,6 +111,18 @@ Kyrin Crafts if you dont want to click on link. then at tie a thread at the tail
 also lenth of the thread for this is fingertip to elbow and you can tie to pen and shake it up and down and that could help let go of frustration or you can grab a thread wrap it around the pen enough that it because like a fishing hook when you throw it.
 oh and use a coin to flatten it or 6 sided pencil to flatten it like how people use a bone folder for paper
 
+ this is for the non math this is added just in case you need to copy and paste in chatgbt to figure it out. 
+A=(1,2,3,4) 
+
+B=(1,2,3,4,5,6) 
+
+C=(1,2) 
+
+D=(1,2,3,4,5,6) 
+
+Hour=6(a-1)+b 
+
+Minute is 30(c-1)+5d 
 
 
 
