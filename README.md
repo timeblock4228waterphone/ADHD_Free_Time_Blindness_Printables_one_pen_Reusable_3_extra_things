@@ -100,7 +100,8 @@ License is cco1 public domain no right reserved.
 (if you see this . this is my signtuare it a double chin happy. butterlfy named steve) this is who you give credit to.
 
 how to make a free fidget toy you google https://www.youtube.com/watch?v=_4p_QxWtGYc&t=83s or 
-How to Make a Paper Table Football | Flick Football | Origami Step by Step Tutorial
+if you dont want to click on a random
+link write this :How to Make a Paper Table Football | Flick Football | Origami Step by Step Tutorial
 Kyrin Crafts if you dont want to click on link. then at tie a thread at the tail like this and fold it you can swing it around. <img width="4032" height="3024" alt="steve-fear-is-tomato" src="https://github.com/user-attachments/assets/c54c93c9-d9fb-4cbb-910a-24b3515e8a54" />
 
 
