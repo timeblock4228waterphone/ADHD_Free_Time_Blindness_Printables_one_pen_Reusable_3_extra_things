@@ -104,7 +104,7 @@ how to make a free fidget toy you google https://www.youtube.com/watch?v=_4p_QxW
 
 
 if you dont want to click on a random
-link write this bro let me write longer so you dont have to click on it :How to Make a Paper Table Football | Flick Football | Origami Step by Step Tutorial
+link write this bro let me write longer so you dont have to click on it :to google you google How to Make a Paper Table Football | Flick Football | Origami Step by Step Tutorial
 Kyrin Crafts if you dont want to click on link. then at tie a thread at the tail like this and fold it you can swing it around. <img width="4032" height="3024" alt="steve-fear-is-tomato" src="https://github.com/user-attachments/assets/c54c93c9-d9fb-4cbb-910a-24b3515e8a54" />
 
 
