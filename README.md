@@ -52,7 +52,7 @@ this is needed to know the next step
 
 [6 Easy on Eyes](./6-9-system-easy-on-eyes%20.pdf)
 
-it can fit into a wallet if you fold it. this one is the only one to print if you are limited to print one page of all of then. print the school or work one . the page to print the last page the other one is bigger in page. school or work 9 system on one page
+it can fit into a wallet if you fold it. this one is the only one to print if you are limited to print one page of all of then. print the school or work one . the page to print the last page the other one is bigger in page. school or work 9 system on one page and you can lamite this by using packing tape
 
 
 
