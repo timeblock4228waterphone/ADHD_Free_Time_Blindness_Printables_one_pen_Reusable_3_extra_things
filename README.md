@@ -124,6 +124,8 @@ D=(1,2,3,4,5,6)
 Hour=6(a-1)+b 
 
 Minute is 30(c-1)+5d 
+
+if you were to input to ai for printable arrow for this (A) if it 2 or 4 the arrow is below the line if it (c) and it 2 the arrow is below the line. (A) if it is 1 or 3 it is below the line. for (C) if it 1 the arrow is above the line.
 this is not neccary to use the non math
 This is another fidget toy that is smal what you do is you make a thread then tie knots in it so tha way you rub your finger on it and it pattern <img width="414" height="472" alt="steve-fly-away" src="https://github.com/user-attachments/assets/585ac3cb-dde6-4925-8243-e307226a9e36" />
 
