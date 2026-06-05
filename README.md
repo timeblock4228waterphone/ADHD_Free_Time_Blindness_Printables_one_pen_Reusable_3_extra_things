@@ -9,7 +9,7 @@
 This is a layered time-reference system for ADHD/time blindness. Different parts are meant for different energy levels. You do not need to use all systems at once.
 
 It a visaul way to see time in printable.
-
+(( all these can be printed in black and white ))
 It makes so that way 
 
 
