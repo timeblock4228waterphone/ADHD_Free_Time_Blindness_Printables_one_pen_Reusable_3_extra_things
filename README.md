@@ -1,3 +1,5 @@
+<img width="414" height="472" alt="steve-fly-away" src="https://github.com/user-attachments/assets/994d5bda-82f8-421a-a089-98881eef0e9f" />
+<img width="414" height="472" alt="steve-fly-away" src="https://github.com/user-attachments/assets/2ec67279-c512-4fb3-9899-3a72887d98ba" />
 
 
 #ADHD anchor Time-Blindness-Printable Public Domain
@@ -124,6 +126,7 @@ Hour=6(a-1)+b
 
 Minute is 30(c-1)+5d 
 this is not neccary to use the non math
+This is another fidget toy that is smal what you do is you make a thread then tie knots in it so tha way you rub your finger on it and it pattern <img width="414" height="472" alt="steve-fly-away" src="https://github.com/user-attachments/assets/585ac3cb-dde6-4925-8243-e307226a9e36" />
 
 
 
