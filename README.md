@@ -1,5 +1,4 @@
-<img width="414" height="472" alt="steve-fly-away" src="https://github.com/user-attachments/assets/994d5bda-82f8-421a-a089-98881eef0e9f" />
-<img width="414" height="472" alt="steve-fly-away" src="https://github.com/user-attachments/assets/2ec67279-c512-4fb3-9899-3a72887d98ba" />
+
 
 
 #ADHD anchor Time-Blindness-Printable Public Domain
