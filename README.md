@@ -37,6 +37,8 @@ there are 8 printable 1 extra.
 
 # Time Blindness Printable
 
+[read this to understand](./-Instructions%20for%20now%20.pdf)
+
 [1 Low Spoon Checklist](./1-a-low-spoon-checklist(2).pdf)
 
 this one you just need to know 4 hours group in day
