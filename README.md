@@ -29,6 +29,7 @@ It helps you see where you are in the day, understand the next few hours, and tr
 
 How it works it is works with your energy level with time.
 it account for high level and low level
+# Time Blindness Printable
 
 
 
