@@ -36,39 +36,43 @@ there are 8 printable 1 extra.
 
 # Time Blindness Printable
 
-[read this to understand](./-Instructions-for-now.pdf)
+[read this to understand](./-Instructions-for-now.pdf) Size 166Kb
 
-[1 Low Spoon Checklist](./1-a-low-spoon-checklist(2).pdf)
+[1 Low Spoon Checklist](./1-a-low-spoon-checklist(2).pdf) Size 84 KB
 
 this one you just need to know 4 hours group in day
 
-[2 Math Not Required](./2-c-math-not-required.pdf)
 
-[3 Stickman](./3-level-1stickman.pdf)
+[2 Math Not Required](./2-c-math-not-required.pdf)  Size 190 KB
 
-[4 Time Blindness 1](./4-b-time-blindness-.pdf)
 
-[5 time blindness 2](./5-b-time-blindness-printable-vo2.pdf)
+[3 Stickman](./3-level-1stickman.pdf) Size 29KB
+
+
+[4 Time Blindness 1](./4-b-time-blindness-.pdf) Size 109KB
+
+
+[5 time blindness 2](./5-b-time-blindness-printable-vo2.pdf) Size 175KB
 this is needed to know the next step
 
-[6 Easy on Eyes](./6-9-breakdown-of-wallet.pdf)
+[6 Easy on Eyes](./6-9-breakdown-of-wallet.pdf) Size 211KB
 
 it can fit into a wallet if you fold it. this one is the only one to print if you are limited to print one page of all of then. print the school or work one . the page to print the last page the other one is bigger in page. school or work 9 system on one page and you can lamite this by using packing tape
 
 
 
-[7 School or Work](./7-9-for-school-or-work-one-page2.pd)
+[7 School or Work](./7-9-for-school-or-work-one-page2.pd) Size 244 KB
 the arrow time you do not needed to learn it is extra work.
 
-[8 Arrow Time not needed ](./8-(not-needed-arrowtime-level-hard).pdf)
+[8 Arrow Time not needed ](./8-(not-needed-arrowtime-level-hard).pdf) Size 102 KB
 
 
-[9 Mental Stimming PDF](./mental-stimming.(1).pdf)
+[9 Mental Stimming PDF](./mental-stimming.(1).pdf) Size 137 KB
 
 this one is low energy way to keep track of expense.
 
 
-[Low Spoon Expense Tracker once a month](./once-a-month-low-spoon-expense-tracker.pdf)
+[Low Spoon Expense Tracker once a month](./once-a-month-low-spoon-expense-tracker.pdf) Size 104 KB
 
 
 
