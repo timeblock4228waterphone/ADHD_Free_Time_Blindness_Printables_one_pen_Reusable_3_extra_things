@@ -129,6 +129,8 @@ Hour=6(a-1)+b
 
 Minute is 30(c-1)+5d 
 
+oh and 60 is 00 for this 
+
 
 this is not neccary to use the non math
 This is another fidget toy that is smal what you do is you make a thread then tie knots in it so tha way you rub your finger on it and it pattern <img width="414" height="472" alt="steve-fly-away" src="https://github.com/user-attachments/assets/585ac3cb-dde6-4925-8243-e307226a9e36" />
