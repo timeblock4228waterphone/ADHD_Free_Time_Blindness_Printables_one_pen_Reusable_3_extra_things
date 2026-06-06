@@ -37,7 +37,7 @@ there are 8 printable 1 extra.
 
 # Time Blindness Printable
 
-[read this to understand](./-Instructions%20for%20now%20.pdf)
+[read this to understand](./-Instructions-for-now.pdf)
 
 [1 Low Spoon Checklist](./1-a-low-spoon-checklist(2).pdf)
 
@@ -52,19 +52,19 @@ this one you just need to know 4 hours group in day
 [5 time blindness 2](./5-b-time-blindness-printable-vo2.pdf)
 this is needed to know the next step
 
-[6 Easy on Eyes](./6-9-system-easy-on-eyes%20.pdf)
+[6 Easy on Eyes](./6-9-breakdown-of-wallet.pdf)
 
 it can fit into a wallet if you fold it. this one is the only one to print if you are limited to print one page of all of then. print the school or work one . the page to print the last page the other one is bigger in page. school or work 9 system on one page and you can lamite this by using packing tape
 
 
 
-[7 School or Work](./7-9-for-school-or-work-one-page2.pdf)
+[7 School or Work](./7-9-for-school-or-work-one-page2.pd)
 the arrow time you do not needed to learn it is extra work.
 
 [8 Arrow Time not needed ](./8-(not-needed-arrowtime-level-hard).pdf)
 
 
-[9 Mental Stimming PDF](./mental%20stimming.(1).pdf)
+[9 Mental Stimming PDF](./mental-stimming.(1).pdf)
 
 this one is low energy way to keep track of expense.
 
