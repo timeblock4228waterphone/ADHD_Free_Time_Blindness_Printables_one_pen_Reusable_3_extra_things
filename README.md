@@ -64,7 +64,9 @@ it can fit into a wallet if you fold it. this one is the only one to print if yo
 [7 School or Work](./7-9-for-school-or-work-one-page2.pd) Size 244 KB
 the arrow time you do not needed to learn it is extra work.
 
-[8 Arrow Time not needed ](./8-(not-needed-arrowtime-level-hard).pdf) Size 102 KB
+[8 Arrow Time not needed ](./8-(not-needed-arrowtime-level-hard).pdf) Size 161 KB
+
+This one arrow time you can plug into ai and it decode for you. the reason it so long is because the isntruction for ai that you plug and and quesiton for the time it is and what it decode to be. It is not for everyday thing to use it for personally when i go to the library on bicycle and need to write down the time with little time.
 
 
 [9 Mental Stimming PDF](./mental-stimming.(1).pdf) Size 137 KB
