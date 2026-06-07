@@ -57,16 +57,17 @@ this is needed to know the next step
 
 [6 Easy on Eyes](./6-9-breakdown-of-wallet.pdf) Size 211KB
 
-it can fit into a wallet if you fold it. this one is the only one to print if you are limited to print one page of all of then. print the school or work one . the page to print the last page the other one is bigger in page. school or work 9 system on one page and you can lamite this by using packing tape. this one you only need 1 page of the 3 same thing
+it can fit into a wallet if you fold it. this one is the only one to print if you are limited to print one page of all of then. print the school or work one . the page to print the last page the other one is bigger in page. school or work 9 system on one page and you can lamite this by using packing tape. this one you only need 1 page of the 3 same thing =
 
 
 
 [7 School or Work](./7-9-for-school-or-work-one-page2.pd) Size 244 KB
-This one arrow time you can plug into ai and it decode for you. the reason it so long is because the isntruction for ai that you plug and and quesiton for the time it is and what it decode to be. It is not for everyday thing to use it for personally when i go to the library on bicycle and need to write down the time with little time.
+
+
+
+This one arrow time you can plug into ai and it decode for you. the reason it so long is because the isntruction for ai that you plug and and quesiton for the time it is and what it decode to be. It is not for everyday thing to use it for personally when i go to the library on bicycle and need to write down the time with little time.=
 
 [8 Arrow Time not needed ](./8-(not-needed-arrowtime-level-hard).pdf) Size 112 KB
-
-=
 
 
 [9 Mental Stimming PDF](./mental-stimming.(1).pdf) Size 137 KB
