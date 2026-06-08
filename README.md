@@ -4,6 +4,8 @@
 #ADHD anchor Time-Blindness-Printable Public Domain
 # neurodiversity time friendly tool.
 
+Number 1 rule you round down to the nearest number of the 9 system 
+
 
 
 This is a layered time-reference system for ADHD/time blindness. Different parts are meant for different energy levels. You do not need to use all systems at once.
