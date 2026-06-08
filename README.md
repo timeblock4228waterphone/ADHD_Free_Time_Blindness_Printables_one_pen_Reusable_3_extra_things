@@ -30,6 +30,8 @@ It helps you see where you are in the day, understand the next few hours, and tr
 How it works it is works with your energy level with time.
 it account for high level and low level
 
+( cc01 no right reserve means anyone can edit to make it their own verson or copy it is in yhe public domain )
+
 
 
 there are 8 printable 1 extra.
