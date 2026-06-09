@@ -5,7 +5,7 @@
 # neurodiversity time friendly tool.
 
 new update on jun 8 2026 Minute half:  1 first half :01–:30, 2nd half  :31–:59
-Number 1 rule you round down to the nearest number of the 9 system 
+
 ( the older version have the wrong number )
 
 
@@ -15,7 +15,7 @@ It a visaul way to see time in printable.
 (( all these can be printed in black and white ))
 It makes so that way 
 
-
+Number 1 rule you round down to the nearest number of the 9 system 
 ( read this)
 (also if you see a time thing with 9 systme in one there is reason for that. The reason is that in school you wont have time to look at 3 seprate page to look through it to see the time this way it is only 1 page on paper )
 
