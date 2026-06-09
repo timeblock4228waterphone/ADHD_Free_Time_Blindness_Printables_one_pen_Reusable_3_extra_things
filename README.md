@@ -6,8 +6,7 @@
 
 Number 1 rule you round down to the nearest number of the 9 system 
 
-updates ( jun 8 2026 it been updated to say 1-30 to 31-59 for it instead of 
-5-30 to 35-00
+
 
 This is a layered time-reference system for ADHD/time blindness. Different parts are meant for different energy levels. You do not need to use all systems at once.
 
@@ -82,7 +81,9 @@ this one is low energy way to keep track of expense.
 
 [Low Spoon Expense Tracker once a month](./once-a-month-low-spoon-expense-tracker.pdf) Size 104 KB
 
-
+updates ( jun 8 2026 it been updated to say 1-30 to 31-59 in the not math required wallet one and wallet one 
+for it instead of 
+5-30 to 35-00
 
  
 
