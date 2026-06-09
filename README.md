@@ -4,6 +4,8 @@
 #ADHD anchor Time-Blindness-Printable Public Domain
 # neurodiversity time friendly tool.
 
+new update in the jun 8 one 1-30 to 31-59
+
 Number 1 rule you round down to the nearest number of the 9 system 
 
 
