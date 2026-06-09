@@ -90,7 +90,7 @@ this one is low energy way to keep track of expense.
 
 
 
-License is cco1 public domain no right reserved.
+License is cco1 public domain no right reserved. meaning if you like it and want to adapt to an app or adapt to fit your need you are welcome to do that.
  
 
 
@@ -146,6 +146,8 @@ this is not neccary to use the non math
 This is another fidget toy that is smal what you do is you make a thread then tie knots in it so tha way you rub your finger on it and it pattern <img width="414" height="472" alt="steve-fly-away" src="https://github.com/user-attachments/assets/585ac3cb-dde6-4925-8243-e307226a9e36" />
 
 Also did you know that if you have a backpack but the bottom of your backpack is lumpy or bumpy the way to fix that is getting a physical file folder open it up like butterfly wings and place it down in the bottom of backpack inside for lumpy back use a clipbord in the front where you place a computer.
+
+
 
 
 
