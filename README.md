@@ -6,7 +6,7 @@
 
 Number 1 rule you round down to the nearest number of the 9 system 
 
-
+update ( jun 8 2026 it been updated to say 1-30 to 31-59
 
 This is a layered time-reference system for ADHD/time blindness. Different parts are meant for different energy levels. You do not need to use all systems at once.
 
