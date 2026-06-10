@@ -60,13 +60,16 @@ this one you just need to know 4 hours group in day
 [5 time blindness 2](./5-b-time-blindness-printable-vo2.pdf) Size 175KB
 this is needed to know the next step
 
-[6 Easy on Eyes](./6-9-breakdown-of-wallet.pdf) Size 211KB
+[6 Easy on Eyes](./6-9-breakdown-of-wallet.pdf) Size 
+UPDATE there is cheat sheet for breakdown of wallet
 
 it can fit into a wallet if you fold it. this one is the only one to print if you are limited to print one page of all of then. print the school or work one . the page to print the last page the other one is bigger in page. school or work 9 system on one page and you can lamite this by using packing tape. this one you only need 1 page of the 3 same thing =
 
 
 
-[7 School or Work](./7-9-for-school-or-work-one-page2.pdf) Size 288 KB
+[7 School or Work](./7-9-for-school-or-work-one-page2.pdf) Size  KB
+UPDATE June 8 there is cheat sheet for it
+
 
 
 
