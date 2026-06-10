@@ -57,7 +57,7 @@ this one you just need to know 4 hours group in day
 [4 Time Blindness 1](./4-A-time-blindness-.pdf) Size 109KB
 
 
-[5 time blindness 2](./5-b-time-blindness-printable-vo2.pdf) Size 175KB
+[5 time blindness 2](./5-b-time-blindness-printable.pdf) Size 175KB
 this is needed to know the next step
 
 [6 Easy on Eyes](./6-9-breakdown-of-wallet.pdf) Size 
