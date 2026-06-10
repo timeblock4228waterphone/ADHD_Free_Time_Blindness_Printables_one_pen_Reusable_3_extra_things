@@ -6,7 +6,7 @@
 
 new update on jun 8 2026 Minute half:  1 first half :01–:30, 2nd half  :31–:59
 
-( the older version have the wrong number )
+( the older version have the wrong range of number)
 
 
 This is a layered time-reference system for ADHD/time blindness. Different parts are meant for different energy levels. You do not need to use all systems at once.
