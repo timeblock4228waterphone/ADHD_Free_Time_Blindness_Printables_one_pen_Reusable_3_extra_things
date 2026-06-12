@@ -126,6 +126,7 @@ link write this bro let me write longer so you dont have to click on it :to goog
 
 google How to Make a Paper Table Football | Flick Football | Origami Step by Step Tutorial
 Kyrin Crafts if you dont want to click on link. then at tie a thread at the tail like this and fold it you can swing it around. <img width="2942" height="1872" alt="steve-is-here" src="https://github.com/user-attachments/assets/e7a03582-c00a-4e7d-9b7e-3c8b08dd1d9c" />
+l
 
 
 
