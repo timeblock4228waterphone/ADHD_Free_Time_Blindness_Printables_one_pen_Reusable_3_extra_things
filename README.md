@@ -132,7 +132,7 @@ l
 
 
 also lenth of the thread for this is fingertip to elbow and you can tie to pen and shake it up and down and that could help let go of frustration or you can grab a thread wrap it around the pen enough that it because like a fishing hook when you throw it.
-oh and use a coin to flatten it or 6 sided pencil to flatten it like how people use a bone folder for paper<img width="2942" height="1872" alt="IMG_4308" src="https://github.com/user-attachments/assets/55cda096-386e-448e-8db9-a43ac5db333d" /> this is the end photo
+oh and use a coin to flatten it or 6 sided pencil to flatten it like how people use a bone folder for paper this is the end photo
 
 
  this is for the non math this is added just in case you need to copy and paste in chatgbt to figure it out. 
