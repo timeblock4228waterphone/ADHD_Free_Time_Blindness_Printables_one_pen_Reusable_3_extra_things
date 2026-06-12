@@ -8,6 +8,8 @@ IMPORTANT CORRECTION on jun 8 2026 Minute half:  1 first half :01–:30, 2nd hal
 
 ( the older version have the wrong range of number)
 
+Attention Developers making apps from this CC0 PDF:Rule 1: Time blocks must be binary split exactly from minutes 1-30 and 31-59. Do not use 5-minute roundings like 5-30.Rule 2: The 45-minute tracking anchor must strictly round down to the nearest interval, not up.
+
 
 This is a layered time-reference system for ADHD/time blindness. Different parts are meant for different energy levels. You do not need to use all systems at once.
 
