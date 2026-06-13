@@ -8,6 +8,8 @@ IMPORTANT CORRECTION on jun 8 2026 Minute half:  1 first half :01–:30, 2nd hal
 
 ( the older version have the wrong range of number)
 
+Rule #1: Always round down. Grab the nearest block behind the current time (6-9-breakd... p. 4).Rule #2: Pick only ONE system. The sheet contains 9 options so you don't have to flip pages, but you should only look at one at a time (6-9-breakd... p. 2).Rule #3: Print and fold. Print the file, fold it to fit your wallet, and consider laminating it with packing tape for durability.
+
 Attention Developers making apps from this CC0 PDF:Rule 1: Time blocks must be binary split exactly from minutes 1-30 and 31-59. Do not use 5-minute roundings like 5-30.Rule 2: The 45-minute tracking anchor must strictly round down to the nearest interval, not up.
 
 
