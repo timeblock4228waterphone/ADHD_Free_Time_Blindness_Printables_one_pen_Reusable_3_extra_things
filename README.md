@@ -71,7 +71,7 @@ it can fit into a wallet if you fold it. this one is the only one to print if yo
 
 
 
-[7 School or Work](./7-9-for-school-or-work-one-page2.pdf) Size  KB
+[7 School or Work](./7-Time_Blindness_Multi_Tool.pdf) Size  KB
 UPDATE June 8 there is cheat sheet for it
 
 
