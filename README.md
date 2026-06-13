@@ -58,7 +58,7 @@ this one you just need to know 4 hours group in day
 [3 Stickman](./3-level-1stickman.pdf) Size 29KB
 
 
-[4 Time Blindness 1](./4-A-time-blindness-.pdf) Size 109KB
+[4 Time Blindness 1](./4_Time_Blindness_Grid_Calculator.pdf) Size 109KB
 the link now works for 4 and 5sorry that it link to an non existat link
 
 [5 time blindness 2](./5-b-time-blindness-printable.pdf) Size 175KB
