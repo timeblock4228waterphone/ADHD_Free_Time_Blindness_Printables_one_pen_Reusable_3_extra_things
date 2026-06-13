@@ -64,7 +64,7 @@ the link now works for 4 and 5sorry that it link to an non existat link
 [5 time blindness 2](./5_Time_Blindness_Direction_Compass.pdf) Size 175KB
 this is needed to know the next step. 
 
-[6 Easy on Eyes](./6-9-breakdown-of-wallet.pdf) Size 
+[6 Easy on Eyes](./6_9_breakdown_of_multi_tool.pdf) Size 
 UPDATE there is cheat sheet for breakdown of wallet
 
 it can fit into a wallet if you fold it. this one is the only one to print if you are limited to print one page of all of then. print the school or work one . the page to print the last page the other one is bigger in page. school or work 9 system on one page and you can lamite this by using packing tape. this one you only need 1 page of the 3 same thing =
