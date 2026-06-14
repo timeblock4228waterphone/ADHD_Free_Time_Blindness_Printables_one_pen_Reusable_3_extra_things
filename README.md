@@ -5,8 +5,7 @@
 # neurodiversity time friendly tool.
 
 
-update June 14 . on break for school study 
-Steve out 
+
 if you there is an issue put it in the issue button 
 
  \ /
