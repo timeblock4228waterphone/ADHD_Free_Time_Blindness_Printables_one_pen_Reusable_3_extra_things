@@ -85,7 +85,7 @@ it can fit into a wallet if you fold it. this one is the only one to print if yo
 
 
 
-[7 School or Work](./7-Time_Blindness_Multi_Tool.pdf) Size  KB
+[7 School or Work](./7-Time_Blindness_Multi_Tool.pdf) Size Update july 14 this has an update where it says 19-24 instead of 19-00
 UPDATE June 8 there is cheat sheet for it
 
 
