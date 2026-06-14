@@ -4,6 +4,14 @@
 #ADHD anchor Time-Blindness-Printable Public Domain
 # neurodiversity time friendly tool.
 
+
+update July 14 . on break for school study 
+Steve out 
+if you there is an issue put it in the issue button 
+
+ \ /
+(:D -
+ / \
 IMPORTANT CORRECTION on jun 13 2026 Minute half:  1 first half :00–:29, 2nd half  :30–:59
 
 ( the older version have the wrong range of number)
