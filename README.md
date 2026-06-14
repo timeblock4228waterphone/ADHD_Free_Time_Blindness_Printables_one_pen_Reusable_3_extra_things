@@ -10,7 +10,13 @@ Steve out
 if you there is an issue put it in the issue button 
 
  \ /
+
+
+
 (:D -
+
+
+
  / \
 IMPORTANT CORRECTION on jun 13 2026 Minute half:  1 first half :00–:29, 2nd half  :30–:59
 
