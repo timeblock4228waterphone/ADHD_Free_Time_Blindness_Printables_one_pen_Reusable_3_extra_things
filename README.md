@@ -58,26 +58,26 @@ there are 8 printable 1 extra.
 
 # Time Blindness Printable
 
-[read this to understand](./-Instructions-for-now.pdf) Size 166Kb
+[read this to understand](./-Instructions-for-now.pdf) 
 
-[1 Low Spoon Checklist](./1-a-low-spoon-checklist(2).pdf) Size 84 KB
+[1 Low Spoon Checklist](./1-a-low-spoon-checklist(2).pdf) 
 
 this one you just need to know 4 hours group in day
 
 
-[2 Math Not Required](./2-c-math-not-required.pdf)  Size 190 KB
+[2 Math Not Required](./2-c-math-not-required.pdf) 
 
 
-[3 pattern](./3-shape-time-recognition.pdf) Size 29KB
+[3 pattern](./3-shape-time-recognition.pdf) 
 ( update june 16 it i change the stickman into shape that much easier to understand
 
-[4 Time Blindness 1](./4_Time_Blindness_Grid_Calculator.pdf) Size 109KB
+[4 Time Blindness 1](./4_Time_Blindness_Grid_Calculator.pdf) 
 the link now works for 4 and 5sorry that it link to an non existat link
 
-[5 time blindness 2](./5_Time_Blindness_Direction_Compass.pdf) Size 175KB
+[5 time blindness 2](./5_Time_Blindness_Direction_Compass.pdf) 
 this is needed to know the next step. 
 
-[6 Easy on Eyes](./6_9_breakdown_of_multi_tool.pdf) Size 
+[6 Easy on Eyes](./6_9_breakdown_of_multi_tool.pdf) 
 UPDATE there is cheat sheet for breakdown of wallet
 
 
