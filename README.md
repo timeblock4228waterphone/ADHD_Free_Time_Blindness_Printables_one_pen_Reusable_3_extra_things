@@ -102,7 +102,7 @@ this one is low energy way to keep track of expense.
 
 [Low Spoon Expense Tracker once a month](./once-a-month-low-spoon-expense-tracker.pdf) Size 104 KB
 
-[calendar] (./steve-expense-calendar.pdf)
+[calendar](./steve-expense-calendar.pdf)
 
 UPDATE ( jun 8 2026 it been updated to say 1-30 to 31-59 in the not math required wallet one and wallet one 
 for it instead of 
