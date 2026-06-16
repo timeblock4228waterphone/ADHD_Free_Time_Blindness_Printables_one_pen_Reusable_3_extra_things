@@ -69,7 +69,7 @@ this one you just need to know 4 hours group in day
 
 
 [3 pattern](./3-shape-time-recognition.pdf) Size 29KB
-
+( update june 16 it i change the stickman into shape that much easier to understand
 
 [4 Time Blindness 1](./4_Time_Blindness_Grid_Calculator.pdf) Size 109KB
 the link now works for 4 and 5sorry that it link to an non existat link
@@ -80,29 +80,28 @@ this is needed to know the next step.
 [6 Easy on Eyes](./6_9_breakdown_of_multi_tool.pdf) Size 
 UPDATE there is cheat sheet for breakdown of wallet
 
-it can fit into a wallet if you fold it. this one is the only one to print if you are limited to print one page of all of then. print the school or work one . the page to print the last page the other one is bigger in page. school or work 9 system on one page and you can lamite this by using packing tape. this one you only need 1 page of the 3 same thing =
+
 
 
 
 [7 School or Work](./7-Time_Blindness_Multi_Tool.pdf) Size Update july 14 this has an update where it says 19-24 instead of 19-00
 UPDATE June 8 there is cheat sheet for it
+it can fit into a wallet if you fold it. this one is the only one to print if you are limited to print one page of all of then. print the school or work one . the page to print the last page the other one is bigger in page. school or work 9 system on one page and you can lamite this by using packing tape. this one you only need 1 page of the 3 same thing =
 
 
 
 
-This one arrow time you can plug into ai and it decode for you. the reason it so long is because the isntruction for ai that you plug and and quesiton for the time it is and what it decode to be. It is not for everyday thing to use it for personally when i go to the library on bicycle and need to write down the time with little time.=
 
-[8 Arrow Time not needed ](./8-(not-needed-arrowtime-level-hard).pdf) Size 112 KB
+[8 Arrow Time not needed ](./8-(not-needed-arrowtime-level-hard).pdf) This one arrow time you can plug into ai and it decode for you. the reason it so long is because the isntruction for ai that you plug and and quesiton for the time it is and what it decode to be. It is not for everyday thing to use it for personally when i go to the library on bicycle and need to write down the time with little time.=
 
 
-[9 Mental Stimming PDF](./mental-stimming.(1).pdf) Size 137 KB
+[9 Mental Stimming PDF](./mental-stimming.(1).pdf)
 
-this one is low energy way to keep track of expense.
 
 
 [Low Spoon Expense Tracker once a month](./once-a-month-low-spoon-expense-tracker.pdf) Size 104 KB
+this one is low energy way to keep track of expense.
 
-[calendar](./steve-expense-calendar.pdf)
 
 UPDATE ( jun 8 2026 it been updated to say 1-30 to 31-59 in the not math required wallet one and wallet one 
 for it instead of 
