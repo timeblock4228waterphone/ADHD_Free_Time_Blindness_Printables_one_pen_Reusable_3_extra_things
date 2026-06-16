@@ -68,7 +68,7 @@ this one you just need to know 4 hours group in day
 [2 Math Not Required](./2-c-math-not-required.pdf)  Size 190 KB
 
 
-[3 Stickman](./3-shape-time-recognition.pdf) Size 29KB
+[3 pattern](./3-shape-time-recognition.pdf) Size 29KB
 
 
 [4 Time Blindness 1](./4_Time_Blindness_Grid_Calculator.pdf) Size 109KB
