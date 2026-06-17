@@ -17,7 +17,7 @@ if you there is an issue put it in the issue button
 
 
  / \\
-IMPORTANT CORRECTION on jun 13 2026 Minute half:  1 first half :00–:29, 2nd half  :30–:59
+IMPORTANT CORRECTION on jun 16 2026 Minute half:  1 first half :1–:30, 2nd half  :31–:60
 
 ( the older version have the wrong range of number)
 
