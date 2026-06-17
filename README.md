@@ -191,7 +191,7 @@ l
 
 
 
-Also did you know that if you have a backpack but the bottom of your backpack is lumpy or bumpy the way to fix that is getting a physical file folder open it up like butterfly wings and place it down in the bottom of backpack inside for lumpy back use a clipbord in the front where you place a computer.
+.  how the fidget work is it cheap remakable anger tool pocket size on the go.Also did you know that if you have a backpack but the bottom of your backpack is lumpy or bumpy the way to fix that is getting a physical file folder open it up like butterfly wings and place it down in the bottom of backpack inside for lumpy back use a clipbord in the front where you place a computer.
 
 
 
