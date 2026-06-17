@@ -84,7 +84,9 @@ UPDATE there is cheat sheet for breakdown of wallet
 
 
 
-[7 School or Work](./7-Time_Blindness_Multi_Tool.pdf) Size Update july 14 this has an update where it says 19-24 instead of 19-00
+[7 School or Work](./7-Time_Blindness_Multi_Tool.pdf) ( this one you print if you had to choose one )
+
+Size Update july 14 this has an update where it says 19-24 instead of 19-00
 UPDATE June 8 there is cheat sheet for it
 it can fit into a wallet if you fold it. this one is the only one to print if you are limited to print one page of all of then. print the school or work one . the page to print the last page the other one is bigger in page. school or work 9 system on one page and you can lamite this by using packing tape. this one you only need 1 page of the 3 same thing =
 
