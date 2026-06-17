@@ -174,11 +174,13 @@ oh and 60 is 00 for this
 this is not neccary to use the non math
 This is another fidget toy that is smal what you do is you make a thread then tie knots in it so tha way you rub your finger on it and it pattern
 
-<img width="4032" height="3024" alt="steve-fear-is-tomato" src="https://github.com/user-attachments/assets/1f7ff8e7-72d5-49b3-bd67-dff969a8fa6b" />
+<img width="414" height="472" alt="steve-fly-away" src="https://github.com/user-attachments/assets/585ac3cb-dde6-4925-8243-e307226a9e36" />
+
+
 
 here is the finish one
 
-<img width="414" height="472" alt="steve-fly-away" src="https://github.com/user-attachments/assets/585ac3cb-dde6-4925-8243-e307226a9e36" />
+<img width="4032" height="3024" alt="steve-fear-is-tomato" src="https://github.com/user-attachments/assets/1f7ff8e7-72d5-49b3-bd67-dff969a8fa6b" />
 
 Also did you know that if you have a backpack but the bottom of your backpack is lumpy or bumpy the way to fix that is getting a physical file folder open it up like butterfly wings and place it down in the bottom of backpack inside for lumpy back use a clipbord in the front where you place a computer.
 
