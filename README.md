@@ -145,7 +145,8 @@ if you dont want to click on a random
 link write this bro let me write longer so you dont have to click on it :to google you 
 
 google How to Make a Paper Table Football | Flick Football | Origami Step by Step Tutorial
-Kyrin Crafts if you dont want to click on link. then at tie a thread at the tail like this and fold it you can swing it around. <img width="2942" height="1872" alt="steve-is-here" src="https://github.com/user-attachments/assets/e7a03582-c00a-4e7d-9b7e-3c8b08dd1d9c" />
+Kyrin Crafts if you dont want to click on link. then at tie a thread at the tail like this and fold it you can swing it around. <img width="4032" height="3024" alt="steve-fear-is-tomato" src="https://github.com/user-attachments/assets/1f7ff8e7-72d5-49b3-bd67-dff969a8fa6b" />
+
 l
 
 
@@ -173,12 +174,16 @@ oh and 60 is 00 for this
 
 this is not neccary to use the non math
 This is another fidget toy that is smal what you do is you make a thread then tie knots in it so tha way you rub your finger on it and it pattern
-
-<img width="4032" height="3024" alt="steve-fear-is-tomato" src="https://github.com/user-attachments/assets/1f7ff8e7-72d5-49b3-bd67-dff969a8fa6b" />
-
-
-
 here is the finish one
+
+
+
+<img width="2942" height="1872" alt="steve-is-here" src="https://github.com/user-attachments/assets/e7a03582-c00a-4e7d-9b7e-3c8b08dd1d9c" />
+l
+
+
+
+
 
 <img width="414" height="472" alt="steve-fly-away" src="https://github.com/user-attachments/assets/585ac3cb-dde6-4925-8243-e307226a9e36" />
 
