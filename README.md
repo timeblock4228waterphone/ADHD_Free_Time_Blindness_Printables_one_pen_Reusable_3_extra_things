@@ -68,7 +68,7 @@ this one you just need to know 4 hours group in day
 [2 Math Not Required](./2-c-math-not-required.pdf) 
 
 
-[3 pattern](./3-shape-time-recognition.pdf) 
+[3 pattern](./3-shape-time-recognition.pdf) (start here)
 ( update june 16 it i change the stickman into shape that much easier to understand
 
 [4 Time Blindness 1](./4_Time_Blindness_Grid_Calculator.pdf) 
