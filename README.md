@@ -58,7 +58,6 @@ there are 8 printable 1 extra.
 
 # Time Blindness Printable
 
-[read this to understand](./-Instructions-for-now.pdf) 
 
 [1 Low Spoon Checklist](./1-a-low-spoon-checklist(2).pdf) 
 
