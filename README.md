@@ -80,6 +80,9 @@ this is needed to know the next step.
 UPDATE there is cheat sheet for breakdown of wallet
 
 
+[school or work look at this](./7-the-backbone-of-wallet.pdf)
+look at this one first to undersand the wallet
+
 
 
 
